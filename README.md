@@ -1,2 +1,0 @@
-# ProjectF
-Sykablyt maksim
